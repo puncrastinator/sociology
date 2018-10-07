@@ -1,2 +1,2 @@
 # Sociology
-Sociology
+Sociology (pronounced [ˌsōsēˈäləjē])
